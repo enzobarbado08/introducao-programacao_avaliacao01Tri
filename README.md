@@ -1,2 +1,1 @@
-# introducao-programacao_avaliacao01Tri
-idk
+Enzo Gabriel de Morais Barbado N°8 1°B
